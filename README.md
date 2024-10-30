@@ -36,6 +36,3 @@ I'm open to collaborations that combine my passions for technology and education
 - **Email:** [fernandogarzon544@gmail.com](mailto:fernandogarzon544@gmail.com)
 - **LinkedIn:** [(https://www.linkedin.com/in/luisfgarzonb/)] 
 
----
-
-Feel free to modify any sections, or let me know if there are specific points you’d like to highlight further! Adding project links or badges/icons for each skill could also add a nice visual touch.
