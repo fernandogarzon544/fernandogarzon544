@@ -34,7 +34,7 @@ I'm open to collaborations that combine my passions for technology and education
 
 ### 📫 How to Reach Me
 - **Email:** [fernandogarzon544@gmail.com](mailto:fernandogarzon544@gmail.com)
-- **LinkedIn:** [linkedin.com/in/fernando-garzon](#) (replace with actual link)
+- **LinkedIn:** [(https://www.linkedin.com/in/luisfgarzonb/)] 
 
 ---
 
